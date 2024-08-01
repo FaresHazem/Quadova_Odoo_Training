@@ -1,0 +1,1 @@
+# Quadova_Odoo_Training
